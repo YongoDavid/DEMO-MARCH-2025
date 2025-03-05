@@ -16,3 +16,5 @@ New week, same grind!!
 MAR 04
 New day, same grind!
 light work today, because i wont be at the desk that much.
+
+MAR 05
