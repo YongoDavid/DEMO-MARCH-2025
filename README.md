@@ -37,3 +37,4 @@ Sunday, chill day but i will be putting in some light work.
 i still have the YIP assesment to complete.
 
 MAR 10
+New week, new dayback to the same gind.
