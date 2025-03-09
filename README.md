@@ -35,3 +35,5 @@ Still working on the YIP assesment project.
 MAR 09
 Sunday, chill day but i will be putting in some light work.
 i still have the YIP assesment to complete.
+
+MAR 10
