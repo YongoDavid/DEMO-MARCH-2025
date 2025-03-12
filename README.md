@@ -38,3 +38,6 @@ i still have the YIP assesment to complete.
 
 MAR 10
 New week, new day, back to the same gind.
+
+MAR 11
+New say same grind!
