@@ -63,3 +63,6 @@ Sunday chill day, but putting in some light work.
 
 MAR 17
 New week, new day lets goooo!
+
+MAR 18
+
