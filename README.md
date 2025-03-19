@@ -56,7 +56,7 @@ More PE
 
 MAR 15
 New dayy, same grind!
-PE annd practice.
+PE and practice.
 
 MAR 16
 Sunday chill day, but putting in some light work.
@@ -69,3 +69,4 @@ New day,same grind!!
 
 MAR 19
 New day, same grind!
+Started the advanced section of PE
