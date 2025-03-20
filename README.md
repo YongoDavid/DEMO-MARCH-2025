@@ -73,3 +73,4 @@ Started the advanced section of PE
 
 MAR 20
 New day,same grinddd
+crazy day yesterday, but when life gets crazy take it in and move forward.
