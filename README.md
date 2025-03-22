@@ -78,3 +78,6 @@ crazy day yesterday, but when life gets crazy take it in and move forward.
 MAR 21
 Crazy day, same grind!!
 I dont even know what to say about this week, but i just have to show up regardless of what happnes.
+
+MAR 22
+
