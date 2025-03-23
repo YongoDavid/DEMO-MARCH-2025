@@ -87,3 +87,4 @@ MAR 23
 Sunday chill day.
 
 MAR 24
+Welcome to a new week, lets make this week count better than last week.
