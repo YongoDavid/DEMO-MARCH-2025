@@ -82,3 +82,6 @@ I dont even know what to say about this week, but i just have to show up regardl
 MAR 22
 New day, same grind!!
 Back to PE.
+
+MAR 23
+
